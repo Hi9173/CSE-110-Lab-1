@@ -1,1 +1,1 @@
-C/C++ if my favorite language!!
+C/C++ if my favorite language!
